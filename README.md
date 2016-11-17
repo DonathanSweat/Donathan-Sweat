@@ -2,4 +2,4 @@
 
 Works at YKK U.S.A. Inc.
 
-I love :coffee: :Pizza:, and :dancer:.
+I love :coffee: :pizza:, and :dancer:.
